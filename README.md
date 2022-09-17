@@ -26,7 +26,8 @@
 - 推荐指数 ⭐⭐⭐⭐
 - 性价比 ⭐⭐
 - 价格 贵
-- TG群  https://t.me/joinchat/HOQoQ09I100ke8sAxlxv0g
+- DuyaoSS机场推荐网站上榜机场
+- TG群：https://t.me/joinchat/HOQoQ09I100ke8sAxlxv0g
 ### 价位
 > - VIP3，季付180元；年付600元；每月400G流量；节点40左右；
 > - VIP4/5，半年付480元；年付800元；每月800G流量；节点100+。
@@ -46,6 +47,7 @@
 - 推荐指数 ⭐⭐⭐⭐
 - 性价比 ⭐⭐
 - 价格阶梯 贵 
+- DuyaoSS机场推荐网站上榜机场
 - TG群 https://t.me/nexitallyusers
 ### 价位：
 - 科学上网
